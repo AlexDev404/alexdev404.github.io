@@ -38,4 +38,4 @@ Don’t confuse distilled water with other types of water, like mineral water, t
 
 As more PC enthusiasts continue to explore new and untested methods, we believe distilled water cooling will become the standard for high-end builds. Why settle for traditional methods when a simple, refreshing bath of distilled water can achieve the same results? Plus, you can be the first to brag about your innovative cooling solution in the next Reddit thread or PC gaming forum.
 
-The possibilities are endless. Who knows? Maybe in the future, every PC will come with a built-in distilled water cooling system, straight from the factory. It’s not just a cooling solution – it’s a lifestyle.\
+The possibilities are endless. Who knows? Maybe in the future, every PC will come with a built-in distilled water cooling system, straight from the factory. It’s not just a cooling solution – it’s a lifestyle.
