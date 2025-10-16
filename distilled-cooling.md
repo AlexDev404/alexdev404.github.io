@@ -1,5 +1,7 @@
 # The Benefits of Distilled Liquid Cooling: A New Era for PC Enthusiasts
 
+<img width="100%" height="430" alt="image" src="https://github.com/user-attachments/assets/8a91a7c3-dd23-47f3-8bd4-8b18928e3671" />
+
 In the world of PC cooling, enthusiasts are always searching for the next big thing. From advanced air cooling systems to liquid nitrogen setups, there's no shortage of options for gamers and professionals looking to keep their rigs running cool. But what if we told you there was a groundbreaking, innovative method that’s often overlooked? Enter **distilled liquid cooling** – a simple, elegant solution that could change the way we think about cooling forever.
 
 ## Why Distilled Water?
