@@ -45,5 +45,3 @@ The possibilities are endless. Who knows? Maybe in the future, every PC will com
 While we strongly recommend against actually pouring water onto your computer (seriously, don’t do it), we can’t deny that the *idea* of distilled water cooling sounds pretty interesting. In reality, liquid cooling systems are a delicate balance of technology and engineering, and water isn’t usually a friend of electrical components. But hey, a bit of imagination and a dash of humor never hurt anyone, right?
 
 Stay cool, stay hydrated (just not near your computer), and happy gaming!
-
-_Disclaimer: This post is purely satirical. Please do not pour any liquids onto your computer. Distilled or otherwise, water and electronics don't mix well._
